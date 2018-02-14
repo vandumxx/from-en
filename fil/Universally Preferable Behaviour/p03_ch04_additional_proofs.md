@@ -2,6 +2,8 @@
 
 There are other additional proofs that we can bring to bear on the question of universally preferable behaviour. 
 
+meron pang ibang idadagdag na pworeba na makakaya nating harapin ang mga tanung tungkol sa 
+
 ### The Free-Market Economy
 
 A free-market economy is without a doubt the most efficient and wealth-producing method of organising the production and consumption of goods and resources within society. Its material success is without equal in human history, or across the world.
